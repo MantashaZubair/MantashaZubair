@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **zmantasha3@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1XgdA4Vje4-5d4m_eGf9SDIJauTWMqSKi/view?usp=sharing](https://drive.google.com/file/d/1XgdA4Vje4-5d4m_eGf9SDIJauTWMqSKi/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/18jhkzgU4FJjHNjwdCYWhm8gYTImhkauM/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
